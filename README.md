@@ -49,3 +49,4 @@
 [https://music.youtube.com]
 [https://netflix.com]
 [https://paramountplus.com]
+[https://tiktok.com]

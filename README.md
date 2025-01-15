@@ -47,3 +47,5 @@
 [https://roblox.com]
 [https://mcraft.fun]
 [https://music.youtube.com]
+[https://netflix.com]
+[https://paramountplus.com]

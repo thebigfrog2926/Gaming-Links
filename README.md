@@ -3,7 +3,7 @@
 [https://spotify.com]
 [https://xbox.com/play]
 [https://replit.com]
-[https://youtube.com]
+[https://youtubecom]
 [https://holyunblocker.org]
 [https://discord.gg]
 [https://composeessay.biz]

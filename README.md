@@ -15,7 +15,7 @@
 [https://portals.radial-pistonmotors.com/]
 [https://study.erenera.info/]
 [https://use.feedcube.org/]
-[edu.daniel-drubin.com]
+[https://edu.daniel-drubin.com]
 [https://study.softinbox.com/]
 [https://buy.doorsnknobs.net/]
 [https://study.handwork.ro/]

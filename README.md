@@ -59,7 +59,7 @@
 [https://www.crazygames.com/game/madalin-stunt-cars-2]
 [https://watchdocumentaries.com]
 [
-[https://sciencespot.com]
+[https://sciencesspot.com]
 [
 [
 [

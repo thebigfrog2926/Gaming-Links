@@ -80,3 +80,4 @@
 [https://easyfun.gg]
 [https://macrolorblx.com/3-methods-to-play-roblox-on-school-chromebook-in-2024/]
 [https://xbox.com]
+https://spacewaves.io/

@@ -86,3 +86,11 @@ https://blooket.com
 https://nodiddydogwasatthediddyparty.global.ssl.fastly.net/math/index.html
 https://magicgen.xyz
 https://discord.gg/SWHpPdHnm2
+https://students.ollemans.com/ 
+https://thestorm.ollemans.com/
+https://forallthestudents.laollaproducciones.com.ar/ 
+https://use.laollaproducciones.com.ar/ 
+https://jewelry.f4.is/ 
+https://par.f4.is/ 
+https://freaky.innovatecchile.com/ 
+https://pipe.innovatecchile.com/

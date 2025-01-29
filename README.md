@@ -84,3 +84,4 @@ https://spacewaves.io/
 https://madalinstuntcars2.io/madalin-stunt-cars-3
 https://blooket.com
 https://nodiddydogwasatthediddyparty.global.ssl.fastly.net/math/index.html
+https://magicgen.xyz
